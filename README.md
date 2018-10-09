@@ -1,0 +1,2 @@
+# https-tripnetra.com-darshan-two-days-tirupati-darshan-package-from-Pondicherry
+Two Days Temple Tour Tirupati to Pondicherry by Car, Bus, Tempo, Flight customized tour packages on Tripnetra.  Tirupati package includes Pondicherry to Tirupati travel, Tirumala Accommodation, confirmed 300rs sheegra darshan  ticket, to and from Tirupati to Tirumala, guide service. For Booking TTD Tour Package, Call@+91 8500898000.
